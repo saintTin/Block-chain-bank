@@ -1,0 +1,1 @@
+I want to build an easy interface for all people to use dealing in cryptocurrency us funds or any other thing that brings an asset to your life it can be stored in a general location closest to you you can access the funds at will whenever need be
